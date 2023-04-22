@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kishore
+- 👋 Hi, I’m kishore.J
 - 👀 I’m interested in the field to start my career as a software engineer
 - 🌱 I’m currently Studying B.E(Mechatronics engineering) at sona college of technology
 - 📫 How to reach me https://www.linkedin.com/in/kishore-j-0b8072251
